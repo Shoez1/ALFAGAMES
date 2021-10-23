@@ -1,1 +1,1 @@
-https://shoez1.github.io/NewpageALFA/
+https://shoez1.github.io/ALFAGAMES/
